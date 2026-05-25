@@ -5,7 +5,7 @@
 <br>
 <br>
 
-# 🤖 VANGUARD MD
+# 🤖 junior pro
 
 ### Advanced Multi-Device WhatsApp Bot
 
@@ -240,7 +240,7 @@ The bot can go **completely silent** in specific chats (academic groups, employe
 
 <br><br>
 
-<code>VANGUARD MD IS ON FIRE 🔥</code> | <code>Made with ❤️ by Admin Blue 𓃵</code>
+<code>JUNIOR PRO IS ON FIRE🔥</code> | <code>Made with ❤️ by JR PRO 𓃵</code>
 
 > *“The best way to predict the future is to create it.”*
 >  *“The hardest choices require the strongest wills🗿.”*
